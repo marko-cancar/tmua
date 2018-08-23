@@ -2,4 +2,4 @@
 
 What did you expect to find here?
 
-send me feedback on cancarito@gmail.com
+Send me feedback or questions on cancarito@gmail.com
